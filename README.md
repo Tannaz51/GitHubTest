@@ -2,6 +2,8 @@
 It is a github test
 
 
-Hurray!!! Creatig... 
+Hurray!!! Creating... 
 
 Urgentcare Website Github!!
+
+This project is so exciting :)i
